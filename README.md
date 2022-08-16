@@ -1,5 +1,5 @@
 ###### If you have any songs hmu
-![Discord](https://imgur.com/a/GqE0VUA)
+![Discord](https://github.com/siuqspo/siuqspo/blob/main/321312.png)
 <!--
 **siuqspo/siuqspo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
